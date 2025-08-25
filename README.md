@@ -15,10 +15,8 @@ Looking for a developer who blends technical skills with creativity and problem-
 ### You can reach me via the following channels:
 
 [LinkedIn](https://www.linkedin.com/in/kingsley-ibe/)<br/>
-[Website](https://kingsleyibe.vercel.app/)<br/>
-[Twitter](https://x.com/kingsleyibec)<br/>
-[Read My Articles On Medium](https://medium.com/@ibekingsley)<br/>
-[Subscribe to my YouTube Channel](https://youtube.com/@kingsleyibe)<br/>
-[Email: ibekingsley66@gmail.com](https://mail.google.com/mail/u/0/#inbox?compose=new)<br/>
-[WhatsApp](https://api.whatsapp.com/send/?phone=2347030331929&text&app_absent=0)<br/>
+[Twitter](https://x.com/mathiashustletv)br/>
+[Subscribe to my YouTube Channel](https://youtube.com/@mathiashustletv)<br/>
+[Email: incomefle1@gmail.com](https://mail.google.com/mail/u/0/#inbox?compose=new)<br/>
+[WhatsApp](https://api.whatsapp.com/send/?phone=2349113578926&text&app_absent=0)<br/>
 
